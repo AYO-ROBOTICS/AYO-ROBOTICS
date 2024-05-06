@@ -4,10 +4,13 @@ SPONSORS:
   POLYMAKER
 
 ACCOPMLISHMENTS:
+
 2023-2024
   1x Tournament Champion
     - Qualified for World Championship
+    
   1x Skills Champion
+  
   3x Judges Award
   
   
